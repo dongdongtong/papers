@@ -1,1 +1,1 @@
-## Welcome to the paper reviews of dsd.
+## Welcome to paper reviews of dsd.
